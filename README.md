@@ -7,3 +7,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 desenhista
 atleta
 Trabalho no periodo da tarde
+souy aluno do colegio julia wanderkey
